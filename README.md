@@ -1,5 +1,3 @@
-# RedNeonWhiskers
-
 ## Площадки размещения
 - [Tik-Tok](https://www.tiktok.com/@redneonwhiskers)
 - [Telegram](https://t.me/RedNeonWhiskers)
